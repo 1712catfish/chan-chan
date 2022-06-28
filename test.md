@@ -1,0 +1,1 @@
+Hai nghìn năm trước, giữa Đại Thụ Trấn mọc lên một cây đại thụ. Từ dưới lòng đất, bộ rễ nó chồi lên, tua tủa như râu bạch tuộc, tràn ra khắp thị trấn, cứng như như sắt thép. Đỉnh nó cao chọc trời, thân to, trăm người ôm không giáp, sừng sững như một tòa thành. 
